@@ -1,3 +1,7 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iq7xeth4zgrwiabkvp7zwkluvu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6bb991&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31iq7xeth4zgrwiabkvp7zwkluvu&redirect=true)
+
+--------------------------------
+
 首無シ御寥ト　死凶天邪鬼　首桶返セ
 首ガ　カユイ　カユイ　カユイ　
 カカカカカカカカカカカカ
